@@ -1,0 +1,2 @@
+Q:- what are French fires and how do they taste
+Ans:- French fries are served hot, either soft or crispy, and are generally eaten as part of lunch or dinner or by themselves as a snack, and they commonly appear on the menus of diners and fast food restaurants. They are served with either tomato ketchup or depending on the country's tradition. They are chopped into long potato slices and are sprinkled with different masala's and at the end they tast really good.
